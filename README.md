@@ -1,1 +1,1 @@
-# culture-news
+https://farruxxamidov.github.io/culture-news/
